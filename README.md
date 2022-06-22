@@ -12,7 +12,7 @@ I'm Paula Fernandez Teves a UX designer junior. I really want to learn and make 
 
 📫 How to reach me pfernandezteves@gmail.com
 
-✨ Fun fact I really enjoy to learn new languages, for example I started learning French.
+✨ I have excellent skills designing in Figma and Adobe Xd.
 
 
 ### Top Technologies 
